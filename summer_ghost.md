@@ -1,4 +1,4 @@
-
+Ghost of the Rainy Season
 ⸻
 
 「夏の亡霊」
